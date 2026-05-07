@@ -1,4 +1,4 @@
-
+smart Script for easter tap simulator offers the most advanced easter tap simulator Script, with god mode and custom skins. Perfect for dominating
 
 
 
